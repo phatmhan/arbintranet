@@ -1,0 +1,2 @@
+# arbintranet
+Akuapem Community Bank
